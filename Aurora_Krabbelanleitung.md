@@ -54,7 +54,7 @@ Du bist jetzt 5 Monate alt und bereit für dein nächstes großes Abenteuer: das
 ### 🎯 Motivation schaffen
 **Was dich zum Krabbeln motiviert:**
 - Spielzeuge in Reichweite, aber nicht ganz nah
-- Papa Michael auf der anderen Seite des Zimmers
+- Papa Basti auf der anderen Seite des Zimmers
 - Einstein und Molly (sie sind die besten Krabbellehrer!)
 
 ## Phase 4: Die ersten Krabbelversuche (7-10 Monate)
