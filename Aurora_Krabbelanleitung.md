@@ -139,7 +139,7 @@ Du bist jetzt 5 Monate alt und bereit für dein nächstes großes Abenteuer: das
 - Das ist die beste Motivation!
 
 ### 👨‍👩‍👧 Familien-Krabbelzeit:
-- Papa Michael kann mitmachen
+- Papa Basti kann mitmachen
 - Onkel Michael (wenn er zu Besuch ist) liebt es bestimmt
 - Oma Monika und Opa Rudi werden so stolz sein
 
